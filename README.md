@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Harshita-Sethi
 - 👀 I’m interested in designing, making and travelling.
-- 🌱 I’m currently learning new recipes to curb my food cravings.
+- 🌱 I’m currently exploring environments through the art of watercolour painting.
 - 💞️ I’m looking to collaborate on projects as a UX designer.
 - 📫 Reach me at hs.harshitasethi@gmail.com
 - 💜 Check out more about me and my work at www.harshitasethi.com
